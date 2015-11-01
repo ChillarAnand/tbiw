@@ -2,7 +2,7 @@
 
 21 stories. One story per week.
 
-2015-11-01
+2015-11-01 - Done
 
 2015-11-08
 
